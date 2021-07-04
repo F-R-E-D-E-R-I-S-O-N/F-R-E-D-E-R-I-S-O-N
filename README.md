@@ -2,7 +2,7 @@ My name is Rodion
 
 Learn Python
 
-Instagram: [@rodyaofficial](https://www.instagram.com/rodyaofficial/)
+Instagram: [tbwnbamtavtbutte](https://www.instagram.com/tbwnbamtavtbutte/)
 
 Telegram: @stallagh
 
