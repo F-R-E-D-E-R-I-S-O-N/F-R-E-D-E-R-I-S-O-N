@@ -4,7 +4,7 @@ Learn Python
 
 Instagram: [tbwnbamtavtbutte](https://www.instagram.com/tbwnbamtavtbutte/)
 
-Telegram: @stallagh
+Telegram: @satisfist
 
 <!---
 F-R-E-D-E-R-I-S-O-N/F-R-E-D-E-R-I-S-O-N is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
